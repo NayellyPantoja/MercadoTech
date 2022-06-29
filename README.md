@@ -1,4 +1,5 @@
 Cristian Diaz
-Matias Salas
-Nayelly Pantoja
-Romina Barravecchia:smile:
+Matias Salas :joy:
+Nayelly Pantoja :yum:
+Romina Barraveccia
+
